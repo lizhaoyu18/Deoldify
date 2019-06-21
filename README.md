@@ -6,15 +6,15 @@
 
 ### 项目结果
 
-![](images\Ballerinas.jpg)
+![](images\Ballerinas.png)
 
 玛丽亚安德森饰演仙女芙蓉和蕾巴夫拉娃作为她在1890年在俄罗斯圣彼得堡皇家剧院芭蕾舞剧“睡美人”的页面。
 
-![](images\MedStudentsCards.jpg)
+![](images\MedStudentsCards.png)
 
 医学生在1890年左右与尸体一起摆姿势。
 
-![](images\SweedishLivingRoom1920.jpg)
+![](images\SweedishLivingRoom1920.png)
 
 放松在她的客厅的妇女（1920年，瑞典）
 
